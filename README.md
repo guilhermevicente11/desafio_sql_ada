@@ -20,7 +20,7 @@ Maria Clara <a href="https://www.linkedin.com/in/mariaclararibeiros/" target="_b
 ![image](https://user-images.githubusercontent.com/97578244/213735878-b2378a49-710e-4985-b000-a546f4a1797d.png)
 ## 3. Melhor defesa do campeonato
 ![image](https://user-images.githubusercontent.com/97578244/213735730-fe39d87a-f215-4f94-b4ae-a13825dd9c09.png)
-## 4. Classificação final(incluindo final)
+## 4. Classificação geral(incluindo final)
 ![image](https://user-images.githubusercontent.com/97578244/213735659-580a90c4-523a-47b3-bf1b-537d997aabe2.png)
 
 
